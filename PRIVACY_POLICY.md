@@ -88,7 +88,7 @@ We may update this privacy policy as the extension evolves. Changes will be post
 
 For questions or concerns about this privacy policy, contact:
 
-**Email**: [Your email address]
+**Email**: lianxunwang2025@gmail.com
 
 ## Consent
 
